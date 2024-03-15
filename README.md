@@ -1,4 +1,4 @@
-### trewefinvaserin
+### - **Discord**: [trewefinvaserin](https://discord.com/users/trewefinvaserin)
 
 <!--
 **vaserintrewefin/vaserintrewefin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
